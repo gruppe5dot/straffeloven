@@ -1,5 +1,5 @@
 # Straffeloven 1902 - se [lovdata](https://lovdata.no/dokument/NLO/lov/1902-05-22-10)
-Gruppe 1: Bendik, Dat-Danny, Audun, Even, Kristoffer, Kenneth.
+Gruppe 1: *Bendik, Dat-Danny, Audun, Even, Kristoffer, Kenneth*.
 
 * 1\. oktober 2015: Ble erstattet av Straffeloven 2005
 
